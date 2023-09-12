@@ -1,0 +1,1 @@
+# tokyo-oplymic-data-azure-data-factoryt
